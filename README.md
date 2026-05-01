@@ -38,7 +38,7 @@ masc⠀  /⠀  neutral⠀  terms
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center">
 
-  [straw](https://d4tad4tad4ta.straw.page)⠀  discord⠀:⠀d4tameo
+  [straw](https://d4tad4tad4ta.straw.page)⠀  discord⠀:⠀mayberonnie
 
 </div>
 
