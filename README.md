@@ -53,15 +53,13 @@ masc⠀  /⠀  neutral⠀  terms
 <summary> byi⠀  ↓⠀  </summary>
 
 1. I am suspected of having MDD&ADHD. I do not self-diagnose myself with those disorders but please beware before u int
-3. I have Severe mood swings that i dont control
+3. I have Severe mood swings
 2. me and my mental health are is not currently being treated by a specialist so my condition has been getting worse and worse
 2. I may come off as rude and aggressive a lot of times
-2. imm a really short tempered person with people that idk
-3. BAD MEMORY I DONT REMEMBER A LOT
-4. i can be super defensive(and aggressive in return) about anything if it looks to me like someone is blaming me/aggressive to me
-5. i use typing quirks!!!!!!!!! boo scary!!!!!! 
-6. i can be super awkward because i have no sense of sociali3ation 
-7. uhh might add something else later
+2. imm a really short tempered person 
+3. ihaveSUPER BAD MEMORY
+4. i can be super defensive(and aggressive in return) about anything if it looks to me like someone is blaming me/aggressive to mep
+
 
 </details>
 </div>
